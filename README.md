@@ -1,1 +1,1 @@
-![LCO Mascot](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngwing.com%2Fen%2Fsearch%3Fq%3Dhack&psig=AOvVaw12K7-QZe1kZCAkM0OWl_EL&ust=1675914623015000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCKj7lNCChf0CFQAAAAAdAAAAABAE)
+
