@@ -1,1 +1,1 @@
-
+![LCO Mascot](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwceastwood01.medium.com%2Foverthewire-natas-f0b3a8662e52&psig=AOvVaw2bEmPTIOjdov08f4RZaCL_&ust=1675914449829000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCICowf2Bhf0CFQAAAAAdAAAAABAF)
